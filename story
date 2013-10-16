@@ -9,3 +9,13 @@ On the couch, Pramod kept his eyes on the tv while Kumar uncle spoke over him. "
 We rattled past landfills on our way back from their house, where Pallavi had had a shower, and Pramod had picked up the large bowl and aunty's old iddiyappam maker. "They say you can bury all of earth's garbage in a big enough hole, and cover it with soil." Pramod nodded in agreement before opening his mouth as if to point out something. "Plastic is just like rock, when you think of it; the trees will grow." "Where would you find large holes," he quickly said. "All those old quarries, just fill them up with the garbage from these landfills, put enough soil on top and you have a nice forest."
 
 Instead, I said "Just like the native Americans, haha." "And look where they are now, cornered into the smallest possible land." "Did you know about their casinos? People cross into the reservations to gamble, and the taxes aren't like Las Vegas. They make their money, but there's a culture of alcohol and violence and it isn't policed well either."
+
+Michael walked in from the dining room, amiably, to see what was on the tv. Kumar uncle was standing now, telling Pramod that the travel agent industry was going to crash. "You see, originally the travel agents commission was fifteen percent! then ten percent, you see?" Pramod nodded. "Now you get five percent? People are just shopping around for the lowest price online."
+
+"They don't believe in marketing, you should see our website: no way to book, nothing." I immediately suggested Google Adwords, "you only pay when they visit your site, I'll set you up with one in five minutes. Put your phone number on the ad, choose to display it only when someone searches for tours in India -- or tours abroad in India -- and just see if you get any calls. Doesn't have to be official, it will be like you got it yourself."
+
+"You should get him some contacts in IT, they all have some corporate social responsibility, I know Wipro has already fixed it, but some other company," he trailed off. None of us could see where this was going. Michael nodded, but backed out into the dining room. I was now sprawled across the couch but couldn't make out what was playing. "Everyone has a solution, huh."
+
+Pramod kept his eyes on the tv while Kumar uncle spoke over us. "I tell you, I spoke to him the other day and he said they wouldn't be investing for at least another two months, eh heh, now look at the news, they've bought the whole thing, eh heh, he said he'd come down and visit but I told him clearly: There is no ac at home, I will not allow it, eh heh."
+
+The train pulled into the station early in the morning. I was awake well before dawn broke, insomnia keeps you intimately aware of who gets off where and who's staring at whom. 
