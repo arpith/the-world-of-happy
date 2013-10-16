@@ -1,4 +1,4 @@
-the-world-of-happy
+The World of Happy
 ==================
 
 One day with a curious old man
