@@ -24,5 +24,12 @@ Kumar uncle was waiting for us in the car park. I met Michael first, a warm smil
 
 "Buffalo," he yelled at the window between him and an SUV lurching out of a house and taking its time to cross the road. The driver, seeing his eyes, pulled alongside and rolled down his window. "Did your granddad give you your license?" "Yes he did, what are you going to do about it." The two old men heaved slowly, the insults they had long learnt hurling inside and betraying their memory. We rolled slowly toward the studio. Kumar uncle's dad was slowly cutting down the obstacle ahead, slowly climbing the steep stairs, slowly but surely, slowly but refusing help. And what could we do. Mathew was delighted. He loves climbing stairs, and did so several times, gently pushing our legs out of his way. My favourite photo had him laughing at my silly face, facing the wrong way, life in the very still family portrait. 
 
+He was quite sick the next night. His cries woke us up and Pallavi went upstairs to help Sariga. Michael had left to get back to work. There had been a great storm in the evening. The roads sank into the mud. Pramod had leaped back from the window overlooking the terrace. Lightning so close it could kill you, he said. Pallavi had spread her hands as if to catch all the joy she could, all the joy soaking us from above. Mathew did not like the storm. He put on his brave face. To see fear glimpse out of a child is to feel love like you've not known. He threw up all night, all over the bedroom. They ran out of clean sheets to lay him down on after his bouts. Kumar uncle and I headed up with more sheets. We stood around helpless. Tired, Sariga snapped at her father. Pallavi gently stroked Mathew's head when my hand was no longer of comfort. 
+
+We walked through the night, Pramod's sandals uneasily small for my feet, Kumar uncle's lungi held up. There was barely light to see, but there were others out, all grouped by light, the street lights above and the lights in the shops still open, so meagre against the sky and the black road. We moved between them, our eyes fixed on the next light, the stars quietly watching from above. The last pharmacy sold the liquid paracetamol Sariga had demanded, and we headed back. 
+
+Pramod looked at us in his sleep as we climbed up the winding stairs. The metal creaked and I had to mind my head. Our duties done, there was nothing to do but to leave the tired child with his mother and aunt and descend to our personal insomnias. 
+
+
 
 
